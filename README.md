@@ -1,5 +1,5 @@
-# Elektrotehniško-računalniška strokovna šola in gimnazija Ljubljana
-## Cap:
+## Elektrotehniško-računalniška strokovna šola in gimnazija Ljubljana
+### Cap:
 
 
 Elektrotehniško-računalniška strokovna šola in gimnazija Ljubljana (Vegova Ljubljana) je šola, ki se enakovredno kosa z najboljšimi srednjimi strokovnimi šolami in gimnazijami v Ljubljani in Sloveniji. Dijakom posredujemo vrednote, usmerjamo jih v trajnostno in vseživljenjsko učenje, v kritičen odnos do prebranega, slišanega, naučenega, razvijamo odgovornost dijakov. Trudimo se, da usvojijo učne strategije in da jim postaneta znanje in delo vrednoti. Še posebno bi pri dijakih in učiteljih želeli razviti kreativnost in inovativnost (reševanje problemov, razvijanje zamisli, raziskovalna dejavnost). Trudimo se vzpostavili partnerski odnos med učiteljem in dijakom, dobro komunikacijo, socialno zavest in etičnost (tolerantnost, spoštljivost). Dijake pripravljamo na uspešno nadaljevanje študija in vključevanje na trg dela. Vizija temelji na dobrih kadrih in opremljenosti z najsodobnejšo tehnologijo. Želimo, da bi bili tako dijaki kot učitelji zadovoljni, samozavestni, šola pa povezana z okoljem in prepoznavna.
